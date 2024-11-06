@@ -20,7 +20,7 @@ A group chat has been created and till now, we have 2 CRs (Class Representative)
 
 > If you can't see the earlier important messages for joining later, you can ask anyone there to repeat the earlier messages for you. Also, the website will stay updated. I will also add all the content in the LMS once it is available online.
 
-<!-- The joining link is given **[here](https://chat.whatsapp.com/LP3vgNRfO23BLvuBRdBUTf).** -->
+The joining link is given **[here](https://chat.whatsapp.com/B9xa2cOqMyDEjjhKU011V0).**
 
 If you need any help, then you can directly reach out to me. I always try to be helpful towards you as a faculty, you all are my responsibility.
 
