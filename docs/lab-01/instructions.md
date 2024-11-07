@@ -16,7 +16,7 @@ I will update the counselling hour later. In the meantime, if you need me, then 
 
 ## Group Chat
 
-A group chat has been created and till now, we have 2 CRs (Class Representative) named **Abid Afzal Galib**, and **---**.
+A group chat has been created and till now, we have 2 CRs (Class Representative) named **Abid Afzal Galib**, and **Ridhika Rani Saha**.
 
 > If you can't see the earlier important messages for joining later, you can ask anyone there to repeat the earlier messages for you. Also, the website will stay updated. I will also add all the content in the LMS once it is available online.
 
